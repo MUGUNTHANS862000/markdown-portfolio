@@ -1,1 +1,1 @@
-say hi on instagram [text] (https://instagram.com/_sweet_king_mugu_)
+say hi on Instagram [@mugunthan] (https://instagram.com/mugunthan)
