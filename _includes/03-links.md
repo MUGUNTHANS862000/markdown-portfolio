@@ -1,1 +1,1 @@
-say hi on Instagram [@mugunthan] (https://instagram.com/mugunthan)
+say hi on Instagram [@mugunthan](https://instagram.com/mugunthan)
